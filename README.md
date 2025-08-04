@@ -80,3 +80,5 @@ Remember to prioritize security at all times. Whether you’re a seller or a buy
 
 <a href="http://pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/upload/web.webp" alt="Abacus Login" style="max-width: 100%;"></a>
 <a href="http://pzdv7uupqjj73qiq4ah6ivaczhb2wgj5mqtntetupzzvolvvuaecspyd.onion"><img src="/upload/record.webp" alt="Abacus Register" style="max-width: 100%;"></a>
+
+Update:  Monday 04 August 2025 Guys, the link is live again, please verify.
