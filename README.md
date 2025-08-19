@@ -83,4 +83,6 @@ Remember to prioritize security at all times. Whether you’re a seller or a buy
 
 
 
-Update:  08/13/2025
+
+
+Update:  19.08.2025 link is reachable
