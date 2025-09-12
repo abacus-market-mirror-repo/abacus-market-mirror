@@ -87,4 +87,6 @@ Remember to prioritize security at all times. Whether you’re a seller or a buy
 
 
 
-Update:  23.08.2025 Link is now working and available
+
+
+Update:  12.09.2025
