@@ -91,4 +91,6 @@ Remember to prioritize security at all times. Whether you’re a seller or a buy
 
 
 
-Update:  18 September url is operational and live
+
+
+Update:  01.10.2025
